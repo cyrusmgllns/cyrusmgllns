@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cyrusmgllns 
 - 👀 I’m interested working in crypto like creating a bot and stickers and a Website
 - 🌱 I’m currently learning a programming languages
-- 💞️ I’m looking to collaborate on our Team
+- 💞️ I’m looking for collaboration on our Team
 - 📫 How to reach me? Just contact my Telegram: https://t.me/AdmntrM
