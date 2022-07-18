@@ -5,7 +5,7 @@
 - 📫 How to reach me? Just contact my:
 - Telegram - https://t.me/AdmntrM
 - Gmail - cyyjohn06@gmail.com
-- and check my: https://cyrusmgllns.github.io/Resume-CV/
+- and also check my resume: https://cyrusmgllns.github.io/Resume-CV/
 
 📫My jobsite:
 - UpWork - https://www.upwork.com/freelancers/~013f7a05682ab5dd2e?s=1110580755057594368
