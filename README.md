@@ -13,3 +13,4 @@
 - OnlineJobsPH - https://www.onlinejobs.ph/jobseekers/info/1499281
 - LinkedIn - https://www.linkedin.com/in/cyrusmgllns/
 - HubStaff Talent - https://hubstafftalent.net/profiles/john-cyrus-magallanes
+- Peopleperhour - https://www.peopleperhour.com/freelancer/cyrus-magallanes-web-developer-mqzjaax
