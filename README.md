@@ -12,3 +12,4 @@
 - Fiverr - https://www.fiverr.com/cyrusmgllns?public_mode=true
 - OnlineJobsPH - https://www.onlinejobs.ph/jobseekers/info/1499281
 - LinkedIn - https://www.linkedin.com/in/cyrusmgllns/
+- HubStaff Talent - https://hubstafftalent.net/profiles/john-cyrus-magallanes
